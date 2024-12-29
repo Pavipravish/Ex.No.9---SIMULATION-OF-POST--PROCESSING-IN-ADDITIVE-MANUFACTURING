@@ -45,6 +45,9 @@
 ![image](https://github.com/user-attachments/assets/fdcddf04-a30e-4867-bf0d-3b6af2acb758)
 ![image](https://github.com/user-attachments/assets/ea8013c9-8172-4d6f-ab4c-5b39121db30d)
 
+## OUTPUT :
+![WhatsApp Image 2024-12-29 at 19 21 42_b603d057](https://github.com/user-attachments/assets/a41810c4-1500-4ecb-88fd-332859194fbe)
+
 
 ### Name:Pravish.J
 ### Register Number:24901067
